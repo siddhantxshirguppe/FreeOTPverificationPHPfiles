@@ -1,3 +1,1 @@
-FIND MORE SCRIPTS ON WWW.HOWI.IN
-
-THE SCRIPT IS JUST UPDATED TO NEW VERSION...
+Now get your otp verifed for free!
